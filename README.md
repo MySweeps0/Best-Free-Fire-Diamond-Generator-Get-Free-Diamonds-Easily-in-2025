@@ -93,6 +93,11 @@ Looking for additional rewards? Check out these pages:
 
 Getting free diamonds in Free Fire has never been easier, thanks to the **Free Fire Diamond Generator**. Stop wasting time on unreliable hacks or unsafe tools. Visit [MySweeps](https://win.sweeps.my/free-fire-diamond-generator) and start claiming your free diamonds today.
 
-Take your gameplay to the next level without spending a dime!
+---
+
+### Internal Links for More Offers:
+- [Main Page with Exciting Offers](https://sweeps.my)  
+- [Free Fire Diamond Generator](https://win.sweeps.my/free-fire-diamond-generator)
 
 ---
+**Author's Note:** The offer is avaiable for **LIMITED TIME ONLY!**.
